@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gregm-mwb
 - 👀 I’m interested in the metaverse
-- 🌱 I’m currently working for https://www.metaverseworldbuilders.com
+- 🌱 I’m currently working for
 - 💞️ I’m looking to collaborate on accessibility
 - 📫 How to reach me info@metaverseworldbuilders.com
 
