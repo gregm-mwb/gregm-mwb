@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gregm-mwb
 - 👀 I’m interested in the metaverse
-- 🌱 I’m currently working for
+- 🌱 I’m currently working for myself with clients including MetaMoron and Metaverse World Builders
 - 💞️ I’m looking to collaborate on accessibility
 - 📫 How to reach me mollogregf@gmail.com
 
